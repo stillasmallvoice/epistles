@@ -29,7 +29,7 @@ A little weed.
 Some Bailey's in the coffee.  
 A steady stream of French 75's to keep the merriment going.
 
-I made a playlist of parade classics and unique expressions of revelry.  
+I made a [playlist](https://open.spotify.com/playlist/2dSx6fA4oMW4Pf3STD0qFO?si=486c604939ec4d2b) of parade classics and unique expressions of revelry.  
 Only one person thought it slapped, but I listened to it all day, anyways.  
 Dancing in my kitchen to a glorious flow of jazz, zydeco, and bounce -  
 a delightful combo only found along my beloved Gulf Coast.
