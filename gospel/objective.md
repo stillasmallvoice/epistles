@@ -1,6 +1,6 @@
 # content
 
-* devotionals
+* writing as worship
 * theology
 * faith
 * community
