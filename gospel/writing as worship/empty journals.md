@@ -13,7 +13,6 @@ My commitment to what I was writing always faded quickly. I wish I could tell yo
 
 Not that I knew that then.  
 I only remembered being embarrassed for some reason I didn't quite understand at the time.
-
 I know now that feeling was just  
 ***CRINGE***
 
