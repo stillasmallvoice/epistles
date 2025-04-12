@@ -1,6 +1,5 @@
 I could often be found in the staionery section of any store as a child.  
-Ever fond of notebooks and pens,  
-notecards and envelopes -  
+Ever fond of notebooks and pens, notecards and envelopes -  
 I loved exploring what cute vessel could hold my next message.
 
 I bought plenty of those journals.  
