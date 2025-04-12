@@ -56,11 +56,9 @@ We must not allow them to strip us of the beautiful pieces of our varied culture
 *We all want our vices.*  
 *We all want to dance.*  
 *We all want to make love.*  
-*We all want love,*
-  *light,*
-    *and peace*
-      *in our lives*
-        *and in our world.*
+*We all want love, light, and peace*
+*in our lives*  
+*and in our world.*
 
 **Laissez les bon temps rouler.**  
-***forevermore**
+***forevermore***
