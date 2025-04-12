@@ -17,7 +17,7 @@ The history of Mardi Gras is as fraught as the history of the land on which it i
 but it was always in these celebrations where I witnessed a diverse community swaying to the same beat.  
 Standing shoulder-to-shoulder as the festivities roll down the road.
 
-That's not to say all Mardi Gras celebrations are as inclusive as they should be,
+That's not to say all Mardi Gras celebrations are as inclusive as they should be,  
 but that every group within our community finds ways to mark the occassion and share joy among and without themselves.
 
 So, I find myself doing that here.
