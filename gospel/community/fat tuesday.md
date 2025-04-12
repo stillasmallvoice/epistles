@@ -2,8 +2,8 @@ Yesterday was a glorious, if private, celebration of one of the best days of the
 
 There are very few people in my life that understand its significance or embrace its joy. Most don't even know its happening until I start talking about it. So, it always winds up feeling more like a private, religious celebration.
 
-Which, honestly,
-<br> **I'm okay with.** </br>
+Which, honestly,  
+**I'm okay with.**
 
 Most people I know here would likely not be able to hang at true Mardi Gras celebrations.  
 These are not people who would do *The Wobble* multiple times alone in their apartments.
