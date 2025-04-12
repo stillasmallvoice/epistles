@@ -1,7 +1,7 @@
 # content
 
 * writing as worship
-* * devotionals
+  * devotionals
   * stream of consciousness
 * theology
 * faith
