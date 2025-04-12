@@ -1,7 +1,7 @@
 # still a small voice
 
 Our liberation will not come from on high.
-It will not come from a pedestal or a microphone.
+<br>It will not come from a pedestal or a microphone.</br>
 
 The true movement toward a more just and noble world will come in the fervant whispers among the proletariat.
 
