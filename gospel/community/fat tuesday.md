@@ -43,8 +43,8 @@ I know, now, that this is my home and the place where I've decided to build my l
 There must always be space in my heart and my mind for my homeland.  
 For the place that birthed me.  
 For the community that did their best to bring me up well, even though they were operating (and had always been operating) under a state of delusion and misinformation.  
-They did not know the things I now understand, but the propelled me forward anyways.  
-The knew not to what I was being propelled, and many are adverse to where I've ended up and what I have decided to do, but I would not have gotten here without them regardless of what they think of me now.
+They did not know the things I now understand, but they propelled me forward anyways.  
+They knew not to what I was being propelled, and many are adverse to where I've ended up and what I have decided to do, but I would not have gotten here without them regardless of what they think of me now.
 
 Much of my work must now move, basically, underground.  
 And that's how my Fat Tuesday felt:  
