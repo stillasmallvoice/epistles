@@ -20,3 +20,7 @@
 * a theology of liberation
 * jesus was a feminist
 * philanthropy / love of humanity / charity
+
+$ git add --all
+$ git commit -m "Initial commit"
+$ git push -u origin main
