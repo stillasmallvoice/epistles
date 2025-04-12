@@ -19,4 +19,5 @@
 * the gospels
 * a theology of liberation
 * jesus was a feminist
-* philanthropy / love of humanity / charity
+* philanthropy / love of humanity
+* charity / non-profits / good works
