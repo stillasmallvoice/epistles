@@ -12,7 +12,7 @@ Instead, you would find a stack of the nicest journals with most of the pages ri
 My commitment to what I was writing always faded quickly. I wish I could tell you I tore those pages out because I was afraid of the consequences I could face if anyone found them. And that may have been true sometimes. I'm positive those entries featured may boys I pined for at the time. But, honestly, I know I tore out those pages because I didn't believe the things I had written.
 
 Not that I knew that then.  
-I only remembered being embarrassed for some reason I didn't quite understand at the time.
+I only remembered being embarrassed for some reason I didn't quite understand at the time.  
 I know now that feeling was just  
 ***CRINGE***
 
