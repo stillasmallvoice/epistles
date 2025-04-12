@@ -10,7 +10,7 @@ These are not people who would do *The Wobble* multiple times alone in their apa
 
 **But, I am.**
 
-I understand the freedome that comes from giving into the music.  
+I understand the freedom that comes from giving into the music.  
 In surrendering yourself to the party, and drinking in the joy and solidarity of a cultural moment of unabased reverie.
 
 The history of Mardi Gras is as fraught as the history of the land on which it is held, but it was always in these celebrations where I witnessed a diverse community swaying to the same beat.  
