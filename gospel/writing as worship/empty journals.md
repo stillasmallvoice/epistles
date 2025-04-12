@@ -36,8 +36,7 @@ Keeping my most intimate of practices, my writing, pure -
 expelling the poison of the cult that encouraged me to write in the first place.
 
 I often wish I could read some of those lost pages.  
-See what I was thinking -  
-with what I was wrestling.  
+See what I was thinking; with what I was wrestling.  
 But I believe they are lost for a reason.
 
 **They weren't my words.**  
