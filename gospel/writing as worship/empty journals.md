@@ -5,9 +5,7 @@ I loved exploring what cute vessel could hold my next message.
 I bought plenty of those journals.  
 Always with the intention of beginning my documentation in earnest.
 
-But if you snooped around my teenage bedroom, you would find no juicy diary filled with an adolescent's earliest encounters with humanity.  
-And, no,  
-you wouldn't even find the prayers of that devout mormon girl scribbled across those aesthetic pages.
+But if you snooped around my teenage bedroom, you would find no juicy diary filled with an adolescent's earliest encounters with humanity. And, no, you wouldn't even find the prayers of that devout mormon girl scribbled across those aesthetic pages.
 
 Instead, you would find a stack of the nicest journals with most of the pages ripped out.
 
