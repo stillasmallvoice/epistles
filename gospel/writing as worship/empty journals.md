@@ -40,8 +40,7 @@ See what I was thinking; with what I was wrestling.
 But I believe they are lost for a reason.
 
 **They weren't my words.**  
-**They were the words that were**  
-***supposed to be mine.***
+**They were the words that were** ***supposed to be mine.***
 
 A life I was told to be leading, but that never felt right.
 
