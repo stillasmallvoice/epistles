@@ -19,8 +19,7 @@ I would reread my own words after writing them and have an immediate reaction of
 
 ***I was lying.***
 
-Not consciously, of course.  
-At that point in time, I fully believed all I had been taught and was 100% convinced I was moving along the right path and in the right direction.
+Not consciously, of course. At that point in time, I fully believed all I had been taught and was 100% convinced I was moving along the right path and in the right direction.
 
 **Deep down,**  
 ***I knew that wasn't true.***
