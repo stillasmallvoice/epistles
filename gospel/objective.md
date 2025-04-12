@@ -1,6 +1,8 @@
 # content
 
 * writing as worship
+* * devotionals
+  * stream of consciousness
 * theology
 * faith
 * community
