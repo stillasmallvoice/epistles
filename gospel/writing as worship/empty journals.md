@@ -13,8 +13,7 @@ My commitment to what I was writing always faded quickly. I wish I could tell yo
 
 Not that I knew that then.  
 I only remembered being embarrassed for some reason I didn't quite understand at the time.  
-I know now that feeling was just  
-***CRINGE***
+I know now that feeling was just ***CRINGE.***
 
 I would reread my own words after writing them and have an immediate reaction of disgust.  
 I thought I just hated my own writing.  
