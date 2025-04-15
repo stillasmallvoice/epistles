@@ -34,7 +34,7 @@ I have had many of those experiences with communities initially unfamiliar to me
 I have witnessed the struggles to which my whiteness and generally relative financial stability had previously blinded me.  
 I have been awakened to the pain of humanity.  
 
-I am ***woke***.
+I am ***woke***.  
 He is Jesus.  
 He is not my savior.  
 *We must save ourselves.*  
