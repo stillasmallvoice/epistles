@@ -7,10 +7,9 @@ This is holy week.
 What we said we were doing  
 *finally confronts*  
 what we are actually doing,  
-
 and what the fuck are we going to do about it.  
 
-It's now or never.  
+*It's now or never.*  
 
 We either wash our hands of his blood  
 or liberate him so that  
