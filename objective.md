@@ -2,7 +2,7 @@
 
 * writing as worship
   * devotionals
-  * stream of consciousness
+  * prayer
 * theology
 * faith
 * community
