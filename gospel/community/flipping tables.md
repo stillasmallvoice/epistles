@@ -18,7 +18,6 @@ he may liberate us.
 **Kilmar**  
 **Abrego**  
 **Garcia**  
-
 and every other neightbor stolen from us  
 **MUST BE RETURNED.**  
 
