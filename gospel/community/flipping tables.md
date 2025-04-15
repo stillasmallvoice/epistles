@@ -6,7 +6,7 @@ This is holy week.
 
 What we said we were doing  
 *finally confronts*  
-what we are actually doing.  
+what we are actually doing,  
 
 and what the fuck are we going to do about it.  
 
