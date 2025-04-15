@@ -15,9 +15,7 @@ We either wash our hands of his blood
 or liberate him so that  
 he may liberate us.  
 
-**Kilmar**  
-**Abrego**  
-**Garcia**  
+**Kilmar Abrego Garcia**  
 and every other neightbor stolen from us  
 **MUST BE RETURNED.**  
 
