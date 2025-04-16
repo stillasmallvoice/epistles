@@ -16,7 +16,7 @@ or liberate him so that
 he may liberate us.  
 
 **Kilmar Abrego Garcia**  
-and every other neightbor stolen from us  
+and every other neighbor stolen from us  
 **MUST BE RETURNED.**  
 
 They are children of our same god,  
