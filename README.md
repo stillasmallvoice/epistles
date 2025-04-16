@@ -3,7 +3,9 @@
 Our liberation will not come from on high.
 <br>It will not come from a pedestal or a microphone.</br>
 
-The true movement toward a more just and noble world will come in the fervent whispers among the proletariat.
+The true movement toward a more just and noble world will come,  
+as it always has,  
+in the fervent whispers between the oppressed.
 
 In the still, small voices which have guided us out of the grasp of countless now fallen empires.
 
